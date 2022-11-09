@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bizhub-guyana-official
+- 👀 I’m interested in Managing Bizhub Guyana.
+- 🌱 I’m currently learning Management
+- 💞️ I’m looking to collaborate on Bizhub Guyanan Management
+- 📫 How to reach me bizhub.guyana@gmail.com
